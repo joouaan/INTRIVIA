@@ -6,7 +6,7 @@
 | Ariel Rizky Nayoan | 265150307111007 | Teknik Komputer | 6 | 
 
 ## Kesan Pesan INTRIVIA Sejauh Ini 
-INTRIVIA membantu saya untuk lebih banyak mengenal mengenai prodi dan departemen saya. Semoga dapat lebih dapat berinovasi di tiap tahunnya. 
+INTRIVIA membantu saya untuk lebih banyak mengenal mengenai prodi dan departemen saya. Semoga INTRIVIA dapat lebih dapat berinovasi di tiap tahunnya untuk membantu mahasiswa baru lebih mengenal dunia perkuliahan. 
 
 ## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini 
 Cluster 6 sangat menyenangkan walaupun mungkin belum mengenal seluruhnya, namun kakak mentor cluster 6 sangat asik dan layaknya teman untuk bertukar informasi seputar dunia perkuliahan.
