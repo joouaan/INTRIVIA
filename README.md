@@ -9,4 +9,7 @@
 INTRIVIA membantu saya untuk lebih banyak mengenal mengenai prodi dan departemen saya. Semoga dapat lebih dapat berinovasi di tiap tahunnya. 
 
 ## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini 
-Cluster 6 sangat menyenangkan walaupun mungkin belum mengenal seluruhnya, namun kakak mentor cluster 6 sangat asik dan layaknya teman untuk bertukar informasi seputar dunia perkuliahan
+Cluster 6 sangat menyenangkan walaupun mungkin belum mengenal seluruhnya, namun kakak mentor cluster 6 sangat asik dan layaknya teman untuk bertukar informasi seputar dunia perkuliahan.
+
+## Harapan Kuliah
+Semoga dapat berkembang dan berproses menjadi individu yang lebih baik dan bermanfaat kedepannya, lulus tepat waktu, mendapatkan pekerjaan yang layak nantinya dan yang pasti membanggakan kedua orangtua.
